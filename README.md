@@ -1,2 +1,4 @@
 # Destroy-Scam-PL-Working
-Destroy Scam PL
+Destroy Scam PL-POLISH
+# im making polish things bcuz i want
+
